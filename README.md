@@ -4,7 +4,7 @@
 
 ₊˚ෆ sometimes i'll be off tab playing other games or doing school work
 
-₊˚ෆ pls interact if you play: dbd, val, lol, mc, roblox, stardew <3!
+₊˚ෆ pls interact if you play: dbd, val, lol, mc, fnf, roblox, stardew <3!
 
 ₊˚ෆ big jjba, bleach, black clover, op fan :3 
 
