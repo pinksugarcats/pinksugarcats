@@ -9,7 +9,6 @@
 ₊˚⊹♡ pls interact if you play: dbd, val, lol, fnf, mc, roblox, or stardew <3!
 
 ₊˚⊹♡ big jjba, hxh, bleach, black clover, & one piece fan :3
-
 ![the 　authority 　comes 　from 　everyones 　hard 　work 　！　。。](https://github.com/user-attachments/assets/04c328b0-ef15-4d00-b312-1ad1058da175)
 
 ₊˚⊹♡ minors dni
