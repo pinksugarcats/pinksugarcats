@@ -4,7 +4,7 @@
 
 ₊˚⊹♡ feel free to come sit with me <3 idm!
 
-₊˚⊹♡ usually i'm afk either doing school work or playing other games
+₊˚⊹♡ sometimes i'll be off tab doing school work or playing other games
 
 ₊˚⊹♡ pls interact if you play: dbd, val, lol, fnf, mc, roblox, or stardew <3!
 
