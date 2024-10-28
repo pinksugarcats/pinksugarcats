@@ -1,6 +1,6 @@
 ![꒰ა arunyi ໒꒱](https://github.com/user-attachments/assets/950b41f7-a5e0-4a74-be29-2c60010347ff)
 
-˚⊹♡ hey i'm pretty quiet but i love to make new friends // whisper me for my discord
+˚⊹♡ hey i'm pretty quiet but i love to make new friends // whisper to interact
 
 ₊˚⊹♡ feel free to come sit with me <3 idm!
 
