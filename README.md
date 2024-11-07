@@ -5,7 +5,7 @@
 
 ₊˚⊹♡ feel free to come sit w me, idm! i'm usually sitting near spawn or docks
 
-₊˚⊹♡ i am NOT ignoring you, most of the time i'm off tab playing another game but if you whisper i'll be more likely to respond to your message ^-^
+₊˚⊹♡ i am not ignoring you, most of the time i'm off tab playing another game but if you whisper i'll be more likely to respond to your message ^-^
 
 ₊˚⊹♡ some other anime fandoms i like: jjba, op, bleach, black clover
 
