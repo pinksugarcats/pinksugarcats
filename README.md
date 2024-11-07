@@ -1,14 +1,15 @@
-![꒰ა arunyi ໒꒱](https://github.com/user-attachments/assets/950b41f7-a5e0-4a74-be29-2c60010347ff)
 
-˚⊹♡ hey i'm pretty quiet but i love to make new friends // whisper to interact
+![b632b1adf09c7d44ec36a389ce882221](https://github.com/user-attachments/assets/a3538f62-673d-4034-9ee7-ddc4db982bce)
 
-₊˚⊹♡ feel free to come sit with me <3 idm!
+˚⊹♡ whisper if you want to interact >> i tend to be a bit awkward but i like to make new friends
 
-₊˚⊹♡ sometimes i'll be off tab doing school work or playing other games
+₊˚⊹♡ feel free to come sit w me, idm! i'm usually sitting near spawn or docks
 
-₊˚⊹♡ pls interact if you play: dbd, val, lol, fnf, mc, roblox, or stardew <3!
+₊˚⊹♡ i am NOT ignoring you, most of the time i'm off tab playing another game but if you whisper i'll be more likely to respond to your message ^-^
 
-₊˚⊹♡ big jjba, hxh, bleach, black clover, & one piece fan :3
-![the 　authority 　comes 　from 　everyones 　hard 　work 　！　。。](https://github.com/user-attachments/assets/04c328b0-ef15-4d00-b312-1ad1058da175)
+₊˚⊹♡ some other anime fandoms i like: jjba, op, bleach, black clover
 
-₊˚⊹♡ minors dni
+₊˚⊹♡ interact if: you play fnf, valorant, stardew, or roblox
+
+₊˚⊹♡ don't interact if: you're a minor or you're just looking for drama
+![b632b1adf09c7d44ec36a389ce882221](https://github.com/user-attachments/assets/a3538f62-673d-4034-9ee7-ddc4db982bce)
